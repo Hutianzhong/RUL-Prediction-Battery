@@ -1,1 +1,1 @@
-Five Step Prediction
+Five Steps Prediction
